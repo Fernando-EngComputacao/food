@@ -1,3 +1,4 @@
-# Título Teste
+# Receitas :man_cook:
 
- 1. Meus primeiros passos no Git e GitHub 
+ 1. Strogonoff
+ 2. Bolo de Trigo 
