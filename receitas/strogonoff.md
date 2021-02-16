@@ -15,4 +15,6 @@
  1. Em uma panela a fogo médio, adicione o óleo e o caldo de galinha e, dissolva o caldo. Em seguida, coloque o frango já picado em cubos na panela e deixe cozinhar. Tome cuidado com a panela para não queimar.
  2. Assim que o frango estiver bem cozido, acrescente o molho de tomate, o ketchup, a mostarda e campignon a gosto.
  3. Abaixe o fogo e coloque o creme de leite e mexa bem, até se tornar um creme heterogêneo.
- 4. Está pronto para servir. 
+ 4. Está pronto para servir.
+ 
+#### _Fernando Furtado_
