@@ -1,4 +1,4 @@
-# Strogonoff de Frango :kitchen:
+# Strogonoff de Frango :chichen:
 
  - Receita
  - Modo de preparo 
