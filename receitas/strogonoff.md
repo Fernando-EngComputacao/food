@@ -17,4 +17,4 @@
  3. Abaixe o fogo e coloque o creme de leite e mexa bem, até se tornar um creme heterogêneo.
  4. Está pronto para servir.
  
-#### _Fernando Furtado_
+##### *_FERNANDO FURTADO_*
