@@ -4,7 +4,7 @@
 
  1. Strogonoff
  2. Bolo de Trigo 
- 3. Frango assado
- 4. Salpicão
+ 3. Frango assado :girl:
+ 4. Salpicão :boy:
 
  :wave:
